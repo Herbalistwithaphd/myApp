@@ -1,4 +1,4 @@
 theApp
 
-I dont havce time for summary just yet. 
+I dont have time for summary just yet. 
 
